@@ -8,10 +8,10 @@ That Faggot was ratting more than one week. His previous nickname was Kona but h
 
 			
      
-                  Ratting: https://cdn.discordapp.com/attachments/1148341689082183681/1155582451813449980/image.png                                                    Exit scamming?: https://cdn.discordapp.com/attachments/1148341689082183681/1155585877901320202/image.png                   
+                  Ratting: https://cdn.discordapp.com/attachments/1148341689082183681/1155582451813449980/image.png                                                                     
  
                Ratting 2: https://cdn.discordapp.com/attachments/1148341689082183681/1155586302838845531/image.png
-
+		Exit scamming?: https://cdn.discordapp.com/attachments/1148341689082183681/1155585877901320202/image.png  
                         Ratting 3: https://cdn.discordapp.com/attachments/1148341689082183681/1155588558191603834/image.png
  
 
